@@ -19,6 +19,7 @@ Serious Stuff:
 • NO Religion  
 • NO Spoilers        
 • Ask before posting a link
+
 • Respect everyone          
 • Have a good time!          
 *You may be banned or kicked if you can't play nice. You've been warned.* 
