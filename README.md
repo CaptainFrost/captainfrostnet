@@ -13,7 +13,8 @@ Receive Frostees™ for spending time here! Use them to unlock awesome stuff! Ty
 
 Serious Stuff:
 
-• NO Self-promotion or Advertising 
+• NO Self-promotion or Advertising  
+
 • NO Politics   
 • NO Religion  
 • NO Spoilers        
