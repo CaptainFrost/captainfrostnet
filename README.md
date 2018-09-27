@@ -11,7 +11,7 @@ You can also visit my personal website at https://www.captainfrost.net/
 # The RULES of the live stream...
 Receive Frostees™ for spending time here! Use them to unlock awesome stuff! Type !rewards during the stream to learn more.
 
-Serious Stuff:
+Serious Stuff:                   
 • NO Self-promotion or Advertising                            
 • NO Politics   
 • NO Religion  
