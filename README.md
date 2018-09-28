@@ -33,6 +33,8 @@ Serious Stuff:
 • Have a good time!          
 *You may be banned or kicked if you can't play nice. You've been warned.* 
 
+Subscribe here: https://www.twitch.tv/products/themightycaptainfrost/ticket?ref=below_video_subscribe_button
+
 
 
 
