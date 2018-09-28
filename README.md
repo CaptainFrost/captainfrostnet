@@ -56,3 +56,19 @@ Check out ALL the awesome perks of Subscribing here:
 • Gain access to the Captain’s Snapchat where he posts as often as he can! 
 
                                      
+                                     
+# Computer Specifications:
+* Operating System
+ Windows 10 Pro 64-bit 16GB Ram
+* CPU Model
+ Intel Core i7 3770K
+* GPU Model
+ AMD Radeon R9 200 / HD 7900 Series
+* Keyboard
+ Ttesports Thermaltake Challenger Prime
+* Mouse
+ Gigabyte Aivia Krypton Dual-Chassis Gaming Mouse
+* Camera
+ Logitech HD Pro C920
+* Microphone
+ Audio-Technica AT2020 USB
