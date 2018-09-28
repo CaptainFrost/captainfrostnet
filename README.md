@@ -1,12 +1,24 @@
 # Welcome!
 Here you'll find a ton of information about Captain Frosts various exploits!
 
+
+
+
+
+
+
 # About the Captain!
 Hello and welcome to my channel!
 I'm a variety streamer focusing primarily on interaction with YOU! Sometimes it feels like more of a "Talk Show" than a gaming stream but we always have a good time!
 
 Make sure to join my awesome Community "The Arctic Storm" https://discord.gg/g5keMQS on Discord to stay up to date with news and upcoming events. 
 You can also visit my personal website at https://www.captainfrost.net/
+
+
+
+
+
+
 
 # The RULES of the live stream...
 Receive Frostees™ for spending time here! Use them to unlock awesome stuff! Type !rewards during the stream to learn more.
@@ -20,3 +32,27 @@ Serious Stuff:
 • Respect everyone          
 • Have a good time!          
 *You may be banned or kicked if you can't play nice. You've been warned.* 
+
+
+
+
+
+
+# What do you get as a Subscriber?
+Are you enjoying the content provided by this channel? 
+Consider subscribing to it by clicking the Subscribe button at the top right of my Twitch channel. This helps support me and my channel!
+Check out ALL the awesome perks of Subscribing here:
+
+• Gain an initial 5000 Frostees™ and earn 2x per minute
+• Access to Sub only Sound Effects usable during the stream
+• Exclusive SFX:
+!wam
+!chill
+!love
+!parkour
+• Awesome emotes for everywhere on Twitch:
+• Officer Role which grants access to Sub only channel with exclusive content
+• PARTY NIGHT EXCLUSIVE ACCESS - Every Saturday night (same time as the streams) Captain Frost plays off-air with his Subscribers!
+• Gain access to the Captain’s Snapchat where he posts as often as he can! 
+
+                                     
