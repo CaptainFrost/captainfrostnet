@@ -43,17 +43,17 @@ Are you enjoying the content provided by this channel?
 Consider subscribing to it by clicking the Subscribe button at the top right of my Twitch channel. This helps support me and my channel!
 Check out ALL the awesome perks of Subscribing here:
 
-• Gain an initial 5000 Frostees™ and earn 2x per minute
-• Access to Sub only Sound Effects usable during the stream
-• Exclusive SFX:
+* Gain an initial 5000 Frostees™ and earn 2x per minute
+* Access to Sub only Sound Effects usable during the stream
+* Exclusive SFX:
 !wam
 !chill
 !love
 !parkour
-• Awesome emotes for everywhere on Twitch:
-• Officer Role which grants access to Sub only channel with exclusive content
-• PARTY NIGHT EXCLUSIVE ACCESS - Every Saturday night (same time as the streams) Captain Frost plays off-air with his Subscribers!
-• Gain access to the Captain’s Snapchat where he posts as often as he can! 
+* Awesome emotes for everywhere on Twitch:
+* Officer Role which grants access to Sub only channel with exclusive content
+* PARTY NIGHT EXCLUSIVE ACCESS - Every Saturday night (same time as the streams) Captain Frost plays off-air with his Subscribers!
+* Gain access to the Captain’s Snapchat where he posts as often as he can! 
 
                                      
                                      
