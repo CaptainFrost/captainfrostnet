@@ -52,7 +52,7 @@ Check out ALL the awesome perks of Subscribing here:
 !parkour
 * Awesome emotes for everywhere on Twitch:
 * Officer Role which grants access to Sub only channel with exclusive content
-* PARTY NIGHT EXCLUSIVE ACCESS - Every Saturday night (same time as the streams) Captain Frost plays off-air with his Subscribers!
+* PARTY NIGHT EXCLUSIVE ACCESS - Every Sunday night (same time as the streams) Captain Frost plays off-air with his Subscribers!
 * Gain access to the Captain’s Snapchat where he posts as often as he can! 
 
 Subscribe here: https://www.twitch.tv/products/themightycaptainfrost/ticket?ref=below_video_subscribe_button
