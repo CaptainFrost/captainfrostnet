@@ -50,8 +50,9 @@ Check out ALL the awesome perks of Subscribing here:
 !chill
 !love
 !parkour
+!guns
 * Awesome emotes for everywhere on Twitch:
-* Officer Role which grants access to Sub only channel with exclusive content
+* VIP Discord Role which grants access to private channels with exclusive content.
 * Gain access to the Captain’s Snapchat where he posts as often as he can! 
 
 Subscribe here: https://www.twitch.tv/products/themightycaptainfrost/ticket?ref=below_video_subscribe_button
