@@ -59,15 +59,15 @@ Subscribe here: https://www.twitch.tv/products/themightycaptainfrost/ticket?ref=
 
 # Subtember Sub Perks:
 
-* Tier 1 (4.99)     
+Tier 1 (4.99)     
 - Game Giveaway draw entry (one a week for the entire month. can win more than once)
 
-* Tier 2 (9.99)    
+Tier 2 (9.99)    
 - 2 Pokemon Cards mailed to you (pokemon, energy) and signed.
 - Digital personal thank you note.
 - Game Giveaway draw entry.
 
-* Tier 3 (24.99)    
+Tier 3 (24.99)    
 - 5 Pokemon Cards mailed to you (2 pokemon, 2 energy, 1 trainer) and signed.
 - Physical thank you note, signed.
 - Game Giveaway draw entry.                                     
