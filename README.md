@@ -58,20 +58,21 @@ Check out ALL the awesome perks of Subscribing here:
 Subscribe here: https://www.twitch.tv/products/themightycaptainfrost/ticket?ref=below_video_subscribe_butto                              
                                      
 # Computer Specifications:
-NOT UPDATED - CURRENTLY INCORRECT
 
 * Operating System
  Windows 10 Pro 64-bit 16GB Ram
 * CPU Model
- Intel Core i7 3770K
+ AMD Ryzen 5 3600 
 * GPU Model
- AMD Radeon R9 200 / HD 7900 Series
+ GeForce RTX 2060 Super 8GB
 * Keyboard
  Ttesports Thermaltake Challenger Prime
 * Mouse
- Gigabyte Aivia Krypton Dual-Chassis Gaming Mouse
+ Logitech PRO Wireless Gaming Mouse
 * Camera
  Logitech HD Pro C920
 * Microphone
  Audio-Technica AT2020 USB
+
+PC Build here: https://ca.pcpartpicker.com/user/CaptainFrost/saved/#view=Yfzjpg
 
