@@ -21,7 +21,7 @@ You can also visit my personal website at https://www.captainfrost.net/
 
 
 # The RULES of the live stream...
-Receive Frostees™ for spending time here! Use them to unlock awesome stuff! Type !rewards during the stream to learn more.
+Receive Frostdust™ for spending time here! Use them to unlock awesome stuff! Type !rewards during the stream to learn more.
 
 Serious Stuff:                   
 • NO Self-promotion or Advertising                            
@@ -43,7 +43,7 @@ Are you enjoying the content provided by this channel?
 Consider subscribing to it by clicking the Subscribe button at the top right of my Twitch channel. This helps support me and my channel!
 Check out ALL the awesome perks of Subscribing here:
 
-* Gain an initial 5000 Frostees™ and earn 2x per minute
+* Gain an initial 5000 Frostdust™ and earn 2x per minute
 * Access to Sub only Sound Effects usable during the stream
 * Exclusive SFX:
 !wam
