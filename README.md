@@ -11,8 +11,7 @@ Here you'll find a ton of information about Captain Frosts various exploits!
 Hello and welcome to my channel!
 I'm a variety streamer focusing primarily on interaction with YOU! Sometimes it feels like more of a "Talk Show" than a gaming stream but we always have a good time!
 
-Make sure to join my awesome Community "The Arctic Storm" https://discord.gg/g5keMQS on Discord to stay up to date with news and upcoming events. 
-You can also visit my personal website at https://www.captainfrost.net/
+Make sure to join my awesome Community "The Arctic Academy" [on Discord](https://discord.gg/NgMKdghZRA) to stay up to date with news and upcoming events. 
 
 
 
@@ -51,6 +50,7 @@ Check out ALL the awesome perks of Subscribing here:
 !love
 !parkour
 !guns
+PLUS MANY MANY MORE
 * Awesome emotes for everywhere on Twitch:
 * VIP Discord Role which grants access to private channels with exclusive content.
 
